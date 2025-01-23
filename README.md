@@ -1,3 +1,3 @@
 Industry Visit and Talk
 
-DEsign Thinking
+Design Thinking
